@@ -1,0 +1,5 @@
+-Oi, me chamo Isabeli Fernanda,e tenho 
+-16 anos e estou no 1° ano e.m
+-Meu hobby: conversar,ler e cantar.
+-Mas, também amo estudar.
+-🌈🎤📚😍.
